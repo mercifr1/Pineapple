@@ -1,1 +1,1 @@
-# Pinneapple
+# Pineapple
